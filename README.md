@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **ask about the frontend, you can ask for help**
 
-- 📫 How to reach me **ozodbekolimjonov7002@gmail.com**
+- 📫 How to reach me **olimjonovozodbek7002@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
